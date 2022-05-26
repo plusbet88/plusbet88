@@ -1,37 +1,3 @@
-## Welcome to GitHub Pages
+# PLUSBET88 | Platform Penyedia Slot Gacor Online Terpercaya 
 
-You can use the [editor on GitHub](https://github.com/plusbet88/plusbet88/edit/main/docs/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/plusbet88/plusbet88/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+PlusBet88 didirikan pada tahun 2022, yang berkomitmen untuk menjadi provider platform game slot gacor online terpercaya, aman dan terupdate. PlusBet88 adalah tempat di mana para provider seperti Pragmatic Play, Habanero, Micro Gaming, Spade Gaming, yang telah menjadi bagian dari ekosistem ini, yang maksudnya dimana para pemain dapat memilih beragam macam jenis permainan seperti permainan sportsbook, poker online, live casino, cockfight dan bahkan slot online gacor yang dapat di akses melalui hp. Dan segala jenis game yang disediakan di situs slot gacor online [PlusBet88](https://plusbet88.info) adalah paling terbaik dalam rating RTP slot online terbesar sedunia.
